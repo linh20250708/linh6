@@ -10,4 +10,4 @@
 
 本站收录海量国产与欧美精品视频内容，覆盖激情、喷潮、高清无码等热门类别。平台播放稳定极速，支持多终端访问，无广告干扰，打造高效舒适的观影体验环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh6 ）</span>
